@@ -1,4 +1,6 @@
-### Hi there 👋
+### (*ˊᗜˋ)ﾉ
+
+I am currently a student at UBC, I am pursuing a combined major in Computer Science and Statistics. 
 
 <!--
 **vickiszhang/vickiszhang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
